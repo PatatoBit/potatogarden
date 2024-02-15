@@ -1,0 +1,11 @@
+- Some earbuds  
+- [Brevite backpack](https://brevite.co/products/the-brevite-backpack?variant=34952238989466&=undefined)  
+- New Graphics Card  
+- [Logitech MX Keyboard](https://www.logitech.com/th-th/products/keyboards/mx-mechanical.920-010760.html)  
+- Electric piano  
+- Polaroid Now  
+- Synology NAS  
+- [3D Printer](https://www.creality.com/products/creality-ender-3-v3-ke?spm=..index.header_1.1)  
+- [Insta360 Go](https://www.insta360.com/product/insta360-go3)  
+- [Sony Video / Photo Camera](https://store.sony.co.th/products/zv-e10?variant=40094719475755)
+- [Spiderman ATSV Artbook](https://a.co/d/0dtxFjP)
