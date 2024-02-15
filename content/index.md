@@ -1,11 +1,10 @@
 ---
 title: Welcome to Patato's Digital Garden
 ---
+## What is this
+This is where I store stuffs I want to remember but can't. I tried finding a note taking app and landed on this for now.
 
-
-[[Studying Topics]]
-
-[[After Exams]]
+I wish I could afford Obsidian Sync but the web of quartz will do for now. I can't edit on mobile though.
 
 ## Ideas
 - [[Design Ideas]]
@@ -13,3 +12,5 @@ title: Welcome to Patato's Digital Garden
 ## Resources
 - [[Wishlist]]
 - [[Fonts]]
+- [[Studying Topics]]
+- [[After Exams]]
