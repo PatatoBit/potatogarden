@@ -1,16 +1,16 @@
 ---
-title: Welcome to Patato's Digital Garden
+title: Welcome to Pat's Digital Garden
 ---
+<img src="./Assets/banner.png" width="701" height="183">
+
 ## What is this
+
 This is where I store stuffs I want to remember but can't. I tried finding a note taking app and landed on this for now.
 
-I wish I could afford Obsidian Sync but the web of quartz will do for now. I can't edit on mobile though.
-
-## Ideas
-- [[Design Ideas]]
-- [Ideas Collection](/ideas/)
-## Resources
-- [[Wishlist]]
+I most write ideas and a collection of stuffs I want to remember down so I can view and share them easily.
 - [[Fonts]]
-- [[Studying Topics]]
-- [[After Exams]]
+- [Ideas Collection](/ideas/)
+- [[Design Ideas]]
+
+Some of these are personal so just ignore them for now I guess. 
+Like the  [[Wishlist]], [[Studying Topics]] and [[After Exams]]
