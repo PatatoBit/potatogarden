@@ -46,11 +46,16 @@ In anyway, they got in trouble for this. Both their parents got called in. Her d
 
 The resolution to that was one of the parents agreed that they can date with moderation.
 #### Selfie (Caught)
+It was one of the band practice days. I saw Trump and Nae Nae leaning into each other and taking a selfie. T.So was also there too and tell them to hurry up before T.One comes.
 
+I also took a picture of them by faking a selfie with BBell.
+![[IMG_0551 1.heic]]
 #### Imaginary BJ? (Allegedly)
 Trump said or brag that he got blown by T.Zhiang at the central court park? Huh?
 
 ## Dialing down with Nae Nae
+After a while, I think they got bored. They agreed to lower their status but still talks? I'm not really sure with this but oh well. Good for them?
 
 ## [[Meiji]]?
+I go to art class every Saturday / Sunday. I saw Trump and Meiji talking together like they're close even though she left the school for a while now. This sparks my suspicion along with rumors about them.
 
