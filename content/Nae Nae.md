@@ -1,4 +1,5 @@
-> [!NOTE]
-> This is a record yet to be written
+> [!WARNING]
+> This record is under construction
+
 ### Suspicion with Portrait
 ### Suspicion with Khun

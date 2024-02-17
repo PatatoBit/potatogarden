@@ -10,7 +10,6 @@ This is a record of the students of the Intertots Trilingual School from the eye
 - [[Nae Nae]]
 - [[Moey]]
 - [[GG]]
-- 
 
 ## Medium priority
 - [[Stamp]]
