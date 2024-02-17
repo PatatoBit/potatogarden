@@ -23,11 +23,11 @@ They shortly broke up after several fights on Line and Instagram DMs. Of course,
 
 After the break up there were still some chats with Moey mainly abusing her and attempts to reunite. Though it didn't work quite well.
 
-This was also the period of time of the [[2023 Summer Camp]] at the UK. [[Moey]] allegedly made an appointment with him to clear up the relationship. But he allegedly thought that it was her attempt of a reunion
+This was also the period of time of the [[2023 UK Summer Camp]] at the UK. [[Moey]] allegedly made an appointment with him to clear up the relationship. But he allegedly thought that it was her attempt of a reunion
 
 ## Relationship with  [[Nae Nae]]
 
-The [[2023 Summer Camp]] was also what I call a love camp. This was when many people fell in love and date. Trump was one of them. There had been reports of Trump and [[Nae Nae ]] together from multiple sources.
+The [[2023 UK Summer Camp]] was also what I call a love camp. This was when many people fell in love and date. Trump was one of them. There had been reports of Trump and [[Nae Nae ]] together from multiple sources.
 
 If I remember correctly, he also bought [[Nae Nae]] a Pandora. Though, I'm not sure with this.
 
@@ -35,13 +35,20 @@ If I remember correctly, he also bought [[Nae Nae]] a Pandora. Though, I'm not s
 
 Trump never officially dated [[Nae Nae]] but remains a status of [siblings relationship](https://www.urbandictionary.com/define.php?term=Your+like+a+brother+to+me.) but I like to call it [open relationship](https://www.urbandictionary.com/define.php?term=open+relationship). Reason why is, she also is kinda like him in a way.
 
-
+Trump had allegedly said that if [[Nae Nae]] gets good grades, he will accept to date her.
 ### Reported Incidents
-#### Backstage
-#### Imaginary BJ?
-#### Selfie
+#### Backstage (Caught)
+T.Phet came in backstage and saw Trump and Nae Nae *playing together (จู๋จี๋)* . Trump got investigated and T.One got mad on?
 
-### Caught Incidents
+Another version of this is a janitor saw them in front of a toilet and reported it. No T.Phet related. Though, I believe this is false as I saw his investigation right after the backstage incident. T.One also told me.
+
+In anyway, they got in trouble for this. Both their parents got called in. Her dad also called Trump to talk with. I know her mom was pretty mad, but his dad seemed chill.
+
+The resolution to that was one of the parents agreed that they can date with moderation.
+#### Selfie (Caught)
+
+#### Imaginary BJ? (Allegedly)
+Trump said or brag that he got blown by T.Zhiang at the central court park? Huh?
 
 ## Dialing down with Nae Nae
 

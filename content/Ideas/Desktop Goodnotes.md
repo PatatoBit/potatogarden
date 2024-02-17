@@ -1,6 +1,7 @@
 ---
 tags:
   - idea
+  - project_idea
 ---
 ## Equations  
 - MathJax (redering)  

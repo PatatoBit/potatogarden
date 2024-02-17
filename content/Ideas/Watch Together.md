@@ -1,6 +1,7 @@
 ---
 tags:
   - idea
+  - project_idea
 ---
 Create a room on one device, other device adds link to queue.  
   

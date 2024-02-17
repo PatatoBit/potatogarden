@@ -1,6 +1,7 @@
 ---
 tags:
   - idea
+  - project_idea
 ---
 Play sounds like a soundboard in real life for situations needed  
 - Bad style Time Back  
