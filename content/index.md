@@ -9,8 +9,8 @@ This is where I store stuffs I want to remember but can't. I tried finding a not
 
 I most write ideas and a collection of stuffs I want to remember down so I can view and share them easily.
 - [[Fonts]]
-- [Ideas Collection](/ideas/)
+- [Ideas Collection](/tags/idea)
 - [[Design Ideas]]
 
 Some of these are personal so just ignore them for now I guess. 
-Like the  [[Wishlist]], [[Studying Topics]] and [[After Exams]]
+Like the  [[Wishlist]], [[Studying Topics]], [[ITS Student Log]] and [[After Exams]]
