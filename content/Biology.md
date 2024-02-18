@@ -57,3 +57,12 @@
 - Enters kidney = High urea
 - Leaves kidney = Low urea
 - Essentially like a filter filtering out the urea
+
+## X-linked conditions
+- Color blindness
+- Hemophilia
+- G6PD
+- Duchenne
+
+## Dicot & Monocot
+![[Pasted image 20240217205009.png]]

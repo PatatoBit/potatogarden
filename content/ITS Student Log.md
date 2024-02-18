@@ -8,8 +8,8 @@ This is a record of the students of the Intertots Trilingual School from the eye
 ## High priority
 - [[Trump]]
 - [[Nae Nae]]
-- [[Moey]]
 - [[GG]]
+- [[Moey]]
 
 ## Medium priority
 - [[Stamp]]
@@ -18,3 +18,4 @@ This is a record of the students of the Intertots Trilingual School from the eye
 
 ## Low priority
 - [[Pim]]
+- [[Chang]]
